@@ -2,4 +2,4 @@
 *Gabrielle Leira O. Cabanting*
 *9-Chabanel*
 
-**Genshin Impact**
+**Jujutsu Kaisen**
