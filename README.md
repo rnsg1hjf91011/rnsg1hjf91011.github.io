@@ -2,6 +2,7 @@
 *Gabrielle Leira O. Cabanting*
 *9-Chabanel*
 
+
 ![image](https://imagenes.20minutos.es/files/image_640_360/uploads/imagenes/2023/11/08/imagen-promocional-de-jujutsu-kaisen.jpeg)
 
 Jujutsu Kaisen (呪術廻戦,"Sorcery Battle") is a Japanese manga series written and illustrated by Gege Akutami. It has been serialized in Shueisha's shōnen manga magazine Weekly Shōnen Jump since March 2018, with its chapters collected and published in 25 tankōbon volumes as of January 2024. The story follows high school student Yuji Itadori as he joins a secret organization of Jujutsu Sorcerers to eliminate a powerful Curse named Ryomen Sukuna, of whom Yuji becomes the host. Jujutsu Kaisen is a sequel to Akutami's Tokyo Metropolitan Curse Technical School, serialized in Shueisha's Jump Giga from April to July 2017, later collected in a tankōbon volume, retroactively titled as Jujutsu Kaisen 0, in December 2018.
